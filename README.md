@@ -10,7 +10,7 @@ Meu nome e fabricio dos santos
 
 fabricio.santo.miranda@gmail.com
 
-instagram:@fabri7.rlx
+instagram:@fabri7.xp
 
 ![](https://media1.giphy.com/media/zj0BxstyhGufC/200w.webp?cid=ecf05e47qganme961a4jnd3q83jryvlk3e3bj0hiibajy44n&ep=v1_gifs_search&rid=200w.webp&ct=g)
 
